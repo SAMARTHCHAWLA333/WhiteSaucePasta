@@ -1,5 +1,5 @@
 # WhiteSaucePasta
-Recipe:-
+*For making white sauce [psata we have to use the following recipie.
 (1)Boil around 4 cups of water. Add in pasta and cook until soft. Drain the water and keep it aside.
 (2)Take 1 tbsp of butter in a frying pan and heat it.
 (3)Add in chopped garlic cloves.
